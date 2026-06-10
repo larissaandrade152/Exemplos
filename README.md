@@ -6,3 +6,4 @@ que nojo quase vomitei
 oi posso fal?
 a livia t viajando na maionese kkkkkkk
 cala a boca larossa
+cala boca juia pintrobal
